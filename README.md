@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @John stephen 
 - 👀 I’m interested in learning new things because I did not know anything,LOL
-- 🌱 I’m currently learning how to survive in TT 
+- 🌱 I’m currently learning how to survive 
 - 💞️ I’m looking to collaborate on 
 - 📫 
 
